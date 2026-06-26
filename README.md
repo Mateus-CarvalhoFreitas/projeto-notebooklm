@@ -54,9 +54,9 @@ https://youtu.be/1A9jo8zP2Tg?si=56j3UPrxUggjhvvX
 
 **Principais aprendizados**
 
-* Budget management;
-* Long-term plans;
-* Wealth building.
+* Gestão do orçamento;
+* Planos de longo prazo;
+* Construção de Patrimônio.
 
 ---
 
